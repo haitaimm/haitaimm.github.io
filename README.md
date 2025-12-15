@@ -1,4 +1,6 @@
-# [赛事直播每日更新 | MediaPro自媒体运营：体育赛事爱好者的全新观赛平台](https://miediapro.gitbook.io/mediapro/)
+# [赛事直播每日更新 | MediaPro自媒体运营：体育赛事爱好者的全新观赛平台](https://my-movie.gitbook.io/my-movie-docs/)
+
+# MediaPro自媒体运营：https://www.mediapro.cloud
 
 在体育赛事日新月异的今天，观众们不再满足于传统的观赛模式。他们渴望更灵活、更个性化、更互动的观赛体验。**赛事直播每日更新 | MediaPro自媒体运营平台**应运而生，为全球体育爱好者提供了一个全新的观赛天地。
 
@@ -14,7 +16,7 @@ MediaPro不仅提供赛事信息，更是一站式自媒体运营解决方案。
 - 互动式直播体验，增强观众参与感
 
 ### 💻 用户友好的访问体验
-网站地址：https://www.selfmediastudio.cc
+网站地址：https://www.mediapro.cloud
 简洁直观的界面设计，让用户能够轻松找到自己感兴趣的赛事。无论是桌面端还是移动端，都能获得流畅的浏览体验。
 
 ## 🚀 为何选择MediaPro？
@@ -36,7 +38,5 @@ MediaPro平台正持续扩展其服务范围，计划在未来引入更多互动
 
 无论你是狂热的体育迷，还是寻找高质量赛事内容的自媒体创作者，**赛事直播每日更新 | MediaPro自媒体运营**平台都值得你的关注。在这里，每一天都有新的赛事，每一场比赛都有新的故事。
 
-立即访问 https://www.selfmediastudio.cc ，开启你的全新观赛体验！
+立即访问 https://www.mediapro.cloud ，开启你的全新观赛体验！
 
----
-*本文为平台推介，所有赛事信息请以平台实时更新为准。*
